@@ -29,7 +29,3 @@ Mi lema es el siguiente:
 
 - ✉️ Email: samuelx.dev@gmail.com  
 - 🔗 LinkedIn: [www.linkedin.com/in/samuel-espín-77471319b](https://www.linkedin.com/in/samuel-espín-77471319b)
-
----
-
-¡Gracias por visitar mi perfil! 🚀
